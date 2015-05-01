@@ -1,1 +1,2 @@
-# xzz.github.io
+# exzedzed.github.io
+# xzz.ca
